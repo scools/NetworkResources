@@ -6,7 +6,17 @@
 <br><br>
 </p>
 
-*updated: 6/20/2018*
+*6/20/2018*
+
+#### [Data Science Office Hours from UW eScience Institute](http://escience.washington.edu/office-hours/#eScienceDataScientists)
+eScience encourages questions from any area of computing in science, but tend to focus on data management, predictive analytics, and visualization.
+
+***
+
+#### [Tutorials and Bootcamps from UW eScience Institute](http://escience.washington.edu/education/tutorials-and-bootcamps/)
+Bootcamps include Hackathons, Scientific Computing in Python, Community Data Science Workshop and Software Carpentry
+
+***
 
 #### [Impact of Social Sciences Blog](http://blogs.lse.ac.uk/impactofsocialsciences/)
 [Recent Blog Post](http://blogs.lse.ac.uk/impactofsocialsciences/2018/06/14/journal-data-sharing-policies-are-moving-the-scientific-community-towards-greater-openness-but-clearly-more-work-remains/) | Journal data sharing policies are moving the scientific community towards greater openness. This blog is a good one overall for research communication and has some thoughtful pieces and resources.
