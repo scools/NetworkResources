@@ -1,12 +1,12 @@
 <p align="center">
- <a href="https://scools.github.io/Home">Home</a>  |
- <a href="https://github.com/scools/Research-Network/wiki/Conferences">Conferences</a>  |
+ <a href="https://scools.github.io/Home/">Home</a>  |
+ <a href="https://scools.github.io/Resources/">Resources</a>  |
  <a href="https://github.com/scools/Research-Network/wiki/Associations">Associations</a>  |
  <a href="https://github.com/scools/Research-Network/projects/2">Projects and Discussions</a>
 <br><br>
 </p>
 
-updated: 6/20/2018
+*updated: 6/20/2018*
 
 #### [Impact of Social Sciences Blog](http://blogs.lse.ac.uk/impactofsocialsciences/)
 [Recent Blog Post](http://blogs.lse.ac.uk/impactofsocialsciences/2018/06/14/journal-data-sharing-policies-are-moving-the-scientific-community-towards-greater-openness-but-clearly-more-work-remains/) | Journal data sharing policies are moving the scientific community towards greater openness. This blog is a good one overall for research communication and has some thoughtful pieces and resources.
