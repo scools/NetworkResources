@@ -39,6 +39,13 @@ The Institutional Challenge Grant encourages university-based research institute
 
 ***
 
+####[Call for Papers Journal of Research on Educational Effectiveness] (https://drive.google.com/drive/folders/1PGWsQYaYGKRlzMMejQLyuusDOjs8Tryb)
+**Educational Research in a New Data Environment**. Deadline for submissions of full papers is **August 1, 2018**. Please send one-page abstracts to Jennifer Bishop (jenn@sree.org) by June 1, 2018. Please mention “JREE call for papers” in the subject
+line. Questions about the special issue can be addressed to Liz Stuart (estuart@jhu.edu) and sean reardon
+(sean.reardon@stanford.edu).
+
+***
+
 #### 2018-19 National Research Conferences in Education and Child Development
 
 |	Association	|	Start	|	End	|	Location	|				Conference Page		|
