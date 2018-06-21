@@ -26,8 +26,8 @@ To take advantage of this offer, from the Society for Personality and Social Psy
 ***
 
 #### Free Webinars: Society for the Psychological Study of Social Issues (SPSSI) 
-* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) | Friday, June 29 from 9:30 - 10:45AM (EST)
-* [Psychology and Neoliberalism: Existence, Implications, and Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) | Sunday, July 1 from 8:40 - 9:55AM (EST)
+* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Friday, June 29 from 9:30 - 10:45AM (EST)
+* [Psychology and Neoliberalism: Existence, Implications, and Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sunday, July 1 from 8:40 - 9:55AM (EST)
 
 ***
 
