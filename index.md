@@ -6,7 +6,7 @@
 <br><br>
 </p>
 
-*6/20/2018*
+*6/21/2018*
 
 #### [AERA Call for 2019 Conference Submissions](http://www.aera.net/Portals/38/AERA_AM2019_CallforSubmissions_FINAL_1.pdf)
 2019 AERA Annual Meeting: Leveraging Education Research in a ‘Post-Truth’ Era: Multimodal Narratives to Democratize Evidence on **April 5-9, 2019 in Toronto, Ontario, CANADA**.
@@ -39,7 +39,7 @@ The Institutional Challenge Grant encourages university-based research institute
 
 ***
 
-####[Call for Papers Journal of Research on Educational Effectiveness] (https://drive.google.com/drive/folders/1PGWsQYaYGKRlzMMejQLyuusDOjs8Tryb)
+#### [Call for Papers Journal of Research on Educational Effectiveness](https://drive.google.com/drive/folders/1PGWsQYaYGKRlzMMejQLyuusDOjs8Tryb)
 **Educational Research in a New Data Environment**. Deadline for submissions of full papers is **August 1, 2018**. Please send one-page abstracts to Jennifer Bishop (jenn@sree.org) by June 1, 2018. Please mention “JREE call for papers” in the subject
 line. Questions about the special issue can be addressed to Liz Stuart (estuart@jhu.edu) and sean reardon
 (sean.reardon@stanford.edu).
