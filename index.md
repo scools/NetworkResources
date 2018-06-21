@@ -19,7 +19,7 @@ The Institutional Challenge Grant encourages university-based research institute
 ***
 
 #### [Society for Personality and Social Psychology (SPSP) Call for 2019 Conference Submissions](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fmeeting.spsp.org%2Fgeneral-info%2Fimportant-dates&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258330308&sdata=0IyDdGEm%2FwqSzdxYO33RkuzrOOhlTO%2BQ1IoZb8jWrLQ%3D&reserved=0)
-The [submission portal](http://meeting.spsp.org/programming/prepare-your-submissions) for the SPSP Convention will be open July 9 - 24th. The conference is scheduled for February 7-9, 2019 in Portland, OR.
+The [submission portal](http://meeting.spsp.org/programming/prepare-your-submissions) for the SPSP Convention will be **open July 9 - 24, 2019**. The conference is scheduled for February 7-9, 2019 in Portland, OR.
 
 ***
 
