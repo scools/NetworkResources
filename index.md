@@ -1,6 +1,4 @@
-theme: jekyll-theme-cayman
-
-### Resources and Opportunities
+# Resources
 updated: 6/20/2018
 
 #### [Impact of Social Sciences Blog](http://blogs.lse.ac.uk/impactofsocialsciences/)
