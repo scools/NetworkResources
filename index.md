@@ -1,3 +1,4 @@
+theme: jekyll-theme-cayman
 
 ### Resources and Opportunities
 updated: 6/20/2018
