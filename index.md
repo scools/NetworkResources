@@ -14,8 +14,8 @@
 ***
 
 #### Free Webinars: Society for the Psychological Study of Social Issues (SPSSI) 
-* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Friday, June 29 from 9:30 - 10:45AM (EST)
-* [Psychology and Neoliberalism: Existence, Implications, and Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sunday, July 1 from 8:40 - 9:55AM (EST)
+* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Friday, June 29 9:30 - 10:45AM(EST)
+* [Psychology and Neoliberalism: Existence, Implications, and Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sunday, July 1 8:40 - 9:55AM(EST)
 
 ***
 
@@ -48,7 +48,7 @@ line. Questions about the special issue can be addressed to Liz Stuart (estuart@
 
 #### 2018-19 National Research Conferences in Education and Child Development
 
-|	Association	|	Start	|	End	|	Location	|				Conference Page		|
+|	Association	|	Start	|	End	|	Location	|	Page |
 |	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
 |	International Association for Cross-Cultural Psychology	|	July 1, 2018	|	July 5, 2018	|	Guelph, Canada	|	[	LINK	](	http://www.iaccp.org/conf_iaccp/	)	|
 |	International Society of Political Psychology	|	July 4, 2018	|	July 7, 2018	|	San Antonio, TX	|	[	LINK	](	http://www.ispp.org/meetings/	)	|
