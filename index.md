@@ -8,7 +8,8 @@
 
 *7/16/2018*
 
-#### [Seattle PublicSchools Enrollment Planning is hiring a new Enrollment & Planning Analyst](https://www.linkedin.com/jobs/view/744722252/) See the government jobs link [here](https://www.governmentjobs.com/careers/seattleschools/jobs/2126295/enrollment-planning-enrollment-planning-analyst-1-0-fte?keywords=enrollment&pagetype=jobOpportunitiesJobs) for more details. Deadline is **July 16, 2018**.
+#### [Seattle PublicSchools Enrollment Planning is hiring a new Enrollment & Planning Analyst](https://www.linkedin.com/jobs/view/744722252/)
+See the government jobs link [here](https://www.governmentjobs.com/careers/seattleschools/jobs/2126295/enrollment-planning-enrollment-planning-analyst-1-0-fte?keywords=enrollment&pagetype=jobOpportunitiesJobs) for more details. Deadline is **July 16, 2018**.
 
 ***
 
