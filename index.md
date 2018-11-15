@@ -8,6 +8,10 @@
 
 *11/15/2018*
 
+
+#### [Society The Society for the Psychological Study of Social Issues (SPSSI) Call for 2019 Conference Submissions]
+Submit a paper or poster presentation to SPSSI's 2019 Summer Conference "Fighting injustice: The power of research, policy, and activism in challenging times" [here](http://form.jotform.com/amcrose/SPSSI2019). The conference will be June 21-23, 2019 in San Diego  **Deadline: December 17, 2018**.
+
 ***
 
 #### [Research Grants on Reducing Inequality: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/research-grants-reducing-inequality)
@@ -28,16 +32,11 @@ The Institutional Challenge Grant encourages university-based research institute
 #### [Lyle Spencer Research Awards: Advancing Understanding of Education Practice and Its Improvement](https://www.spencer.org/lyle-spencer-research-awards)
 The Lyle Spencer Research Awards program supports intellectually ambitious research oriented to improving the practice of education, independent of any particular reform agendas or methodological strictures.  This program encourages proposals initiated by scholars across a variety of disciplines and fields in an effort to create much-needed space for creative and ambitious research projects that promise to advance our understanding of educational practice and its improvement. Deadline is **Late-May, 2019**
 
-#### 2019-20 National Research Conferences in Education and Child Development
+#### 2019 National Research Conferences in Education and Child Development
 
 |	Association	|	Start	|	End	|	Location	|	Page |
 |	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
-|	International Association for Cross-Cultural Psychology	|	July 1, 2018	|	July 5, 2018	|	Guelph, Canada	|	[	LINK	](	http://www.iaccp.org/conf_iaccp/	)	|
-|	International Society of Political Psychology	|	July 4, 2018	|	July 7, 2018	|	San Antonio, TX	|	[	LINK	](	http://www.ispp.org/meetings/	)	|
-|	International Association for Relationship Research	|	July 12, 2018	|	July 18, 2018	|	Fort Collins, CO	|	[	LINK	](	http://www.iarr.org/Conferences/	)	|
-|	American Psychological Association	|	August 9, 2018	|	August 12, 2018	|	San Francisco, CA	|	[	LINK	](	http://www.apa.org/convention/	)	|
-|	The Center for IDEA Earch Childhood Data Systems	|	August 14, 2018	|	August 16, 2018	|	Arlington, VA	|	[	LINK	](	http://dasycenter.org/eventcalendar/2018-improving-data-improving-outcomes-conference/	)	|
-|	Society of Experimental Social Psychology	|	October 4, 2018	|	October 6, 2018	|	Seattle, WA	|	[	LINK	](	http://www.sesp.org/annualconference	)	|
+|	SPSSI's 2019 Summer Conference |	June 21, 2019 |	June 23, 2019 |	San Diego, CA|	[	LINK	](https://www.spssi.org/index.cfm?fuseaction=Page.ViewPage&pageId=480)
 |	Association for Research in Personality	|	June 27, 2019	|	June 29, 2019	|	Grand Rapids, MI	|	[	LINK	](	http://www.personality-arp.org/conference/	)	|
 
 ***
