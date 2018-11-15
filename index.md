@@ -8,7 +8,7 @@
 
 *11/15/2018*
 
-#### [Society The Society for the Psychological Study of Social Issues (SPSSI) Call for 2019 Conference Submissions](https://www.spssi.org/index.cfm?fuseaction=Page.ViewPage&pageId=480)
+#### [The Society for the Psychological Study of Social Issues (SPSSI) Call for 2019 Conference Submissions](https://www.spssi.org/index.cfm?fuseaction=Page.ViewPage&pageId=480)
 Submit a paper or poster presentation to SPSSI's 2019 Summer Conference "Fighting injustice: The power of research, policy, and activism in challenging times" [here](http://form.jotform.com/amcrose/SPSSI2019). The conference will be June 21-23, 2019 in San Diego  **Deadline: December 17, 2018**.
 ***
 #### [Research Grants on Reducing Inequality: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/research-grants-reducing-inequality)
@@ -22,20 +22,15 @@ The Lyle Spencer Research Awards program supports intellectually ambitious resea
 ***
 #### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
 The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **Deadline Will Be Posted Spring 2019**.
-
 ***
-
 #### 2019 National Research Conferences in Education and Child Development
 |	Association	|	Start	|	End	|	Location	|	Page |
 |	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
 |	AERA: Leveraging Education Research in a Post-Truth Era	|	April 5, 2019	|	April 9, 2019	|	Toronto, Canada|	[	LINK	](	http://www.aera.net/Events-Meetings/Annual-Meeting/2019-Annual-Meeting-Registration#register)	|
 |	SPSSI's 2019 Summer Conference |	June 21, 2019 |	June 23, 2019 |	San Diego, CA|	[	LINK	](https://www.spssi.org/index.cfm?fuseaction=Page.ViewPage&pageId=480)
 |	Association for Research in Personality	|	June 27, 2019	|	June 29, 2019	|	Grand Rapids, MI	|	[	LINK	](	http://www.personality-arp.org/conference/	)	|
-
 ***
-
 ## Archived
-
 #### Free Webinars: Society for the Psychological Study of Social Issues (SPSSI) 
 * [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Fri., 06/29 9:30-10:45AM(EST)
 * [Psychology & Neoliberalism: Existence, Implications, & Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sun., 07/01 8:40-9:55AM(EST)
@@ -59,8 +54,6 @@ SPSSI-European Association for Social Psychology EASP Small International Confer
 **Educational Research in a New Data Environment**. Deadline for submissions of full papers is **August 1, 2018**. Please send one-page abstracts to Jennifer Bishop (jenn@sree.org) by June 1, 2018. Please mention “JREE call for papers” in the subject
 line. Questions about the special issue can be addressed to Liz Stuart (estuart@jhu.edu) and sean reardon
 (sean.reardon@stanford.edu).
-
 ***
-
 #### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
 The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **September 7, 2018** 3:00 PM EST.
