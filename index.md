@@ -6,7 +6,49 @@
 <br><br>
 </p>
 
-*7/13/2018*
+*11/15/2018*
+
+***
+
+#### [Research Grants on Reducing Inequality: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/research-grants-reducing-inequality)
+The research grants programs support high-quality field-initiated studies that are relevant to policies and practices that affect the lives of young people ages 5 to 25 in the United States. Research proposals are evaluated on the basis of their fit with a given focus area; the strength and feasibility of their designs, methods, and analyses; their potential to inform change; and their contribution to theory and empirical evidence. Deadline is **January 9, 2019** 3:00 PM EST.
+
+***
+
+#### [Small Research Grants Application Guidelines](https://www.spencer.org/small-research-grants-application-guidelines)
+The Small Research Grants program aims to support smaller scale or pilot research projects that have budgets of $50,000 or less. Proposals are encouraged from scholars across a variety of disciplines in an effort to fund field-initiated education research. Deadline is **February 1, 2019** 4:00 PM CST.
+
+***
+
+#### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
+The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **September 7, 2018** 3:00 PM EST.
+
+***
+
+#### [Lyle Spencer Research Awards: Advancing Understanding of Education Practice and Its Improvement](https://www.spencer.org/lyle-spencer-research-awards)
+The Lyle Spencer Research Awards program supports intellectually ambitious research oriented to improving the practice of education, independent of any particular reform agendas or methodological strictures.  This program encourages proposals initiated by scholars across a variety of disciplines and fields in an effort to create much-needed space for creative and ambitious research projects that promise to advance our understanding of educational practice and its improvement. Deadline is **Late-May, 2019**
+
+#### 2019-20 National Research Conferences in Education and Child Development
+
+|	Association	|	Start	|	End	|	Location	|	Page |
+|	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
+|	International Association for Cross-Cultural Psychology	|	July 1, 2018	|	July 5, 2018	|	Guelph, Canada	|	[	LINK	](	http://www.iaccp.org/conf_iaccp/	)	|
+|	International Society of Political Psychology	|	July 4, 2018	|	July 7, 2018	|	San Antonio, TX	|	[	LINK	](	http://www.ispp.org/meetings/	)	|
+|	International Association for Relationship Research	|	July 12, 2018	|	July 18, 2018	|	Fort Collins, CO	|	[	LINK	](	http://www.iarr.org/Conferences/	)	|
+|	American Psychological Association	|	August 9, 2018	|	August 12, 2018	|	San Francisco, CA	|	[	LINK	](	http://www.apa.org/convention/	)	|
+|	The Center for IDEA Earch Childhood Data Systems	|	August 14, 2018	|	August 16, 2018	|	Arlington, VA	|	[	LINK	](	http://dasycenter.org/eventcalendar/2018-improving-data-improving-outcomes-conference/	)	|
+|	Society of Experimental Social Psychology	|	October 4, 2018	|	October 6, 2018	|	Seattle, WA	|	[	LINK	](	http://www.sesp.org/annualconference	)	|
+|	Association for Research in Personality	|	June 27, 2019	|	June 29, 2019	|	Grand Rapids, MI	|	[	LINK	](	http://www.personality-arp.org/conference/	)	|
+
+***
+
+## Archived
+
+#### Free Webinars: Society for the Psychological Study of Social Issues (SPSSI) 
+* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Fri., 06/29 9:30-10:45AM(EST)
+* [Psychology & Neoliberalism: Existence, Implications, & Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sun., 07/01 8:40-9:55AM(EST)
+
+***
 
 #### [Seattle Public Schools Enrollment Planning is hiring a new Enrollment & Planning Analyst](https://www.linkedin.com/jobs/view/744722252/)
 See the government jobs link [here](https://www.governmentjobs.com/careers/seattleschools/jobs/2126295/enrollment-planning-enrollment-planning-analyst-1-0-fte?keywords=enrollment&pagetype=jobOpportunitiesJobs) for more details. Deadline is **July 16, 2018**.
@@ -42,27 +84,3 @@ line. Questions about the special issue can be addressed to Liz Stuart (estuart@
 
 #### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
 The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **September 7, 2018** 3:00 PM EST.
-
-***
-
-#### 2018-19 National Research Conferences in Education and Child Development
-
-|	Association	|	Start	|	End	|	Location	|	Page |
-|	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
-|	International Association for Cross-Cultural Psychology	|	July 1, 2018	|	July 5, 2018	|	Guelph, Canada	|	[	LINK	](	http://www.iaccp.org/conf_iaccp/	)	|
-|	International Society of Political Psychology	|	July 4, 2018	|	July 7, 2018	|	San Antonio, TX	|	[	LINK	](	http://www.ispp.org/meetings/	)	|
-|	International Association for Relationship Research	|	July 12, 2018	|	July 18, 2018	|	Fort Collins, CO	|	[	LINK	](	http://www.iarr.org/Conferences/	)	|
-|	American Psychological Association	|	August 9, 2018	|	August 12, 2018	|	San Francisco, CA	|	[	LINK	](	http://www.apa.org/convention/	)	|
-|	The Center for IDEA Earch Childhood Data Systems	|	August 14, 2018	|	August 16, 2018	|	Arlington, VA	|	[	LINK	](	http://dasycenter.org/eventcalendar/2018-improving-data-improving-outcomes-conference/	)	|
-|	Society of Experimental Social Psychology	|	October 4, 2018	|	October 6, 2018	|	Seattle, WA	|	[	LINK	](	http://www.sesp.org/annualconference	)	|
-|	Association for Research in Personality	|	June 27, 2019	|	June 29, 2019	|	Grand Rapids, MI	|	[	LINK	](	http://www.personality-arp.org/conference/	)	|
-
-***
-
-## Archived
-
-#### Free Webinars: Society for the Psychological Study of Social Issues (SPSSI) 
-* [Decolonial Approaches to the Psychological Study of Social Issues](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100506%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258350322&sdata=MjI68y%2FgZH%2BawO2FrDdheqKuGk1gfNB3A64dlQ8fVwU%3D&reserved=0) Fri., 06/29 9:30-10:45AM(EST)
-* [Psychology & Neoliberalism: Existence, Implications, & Resistance](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.spssi.org%2Fdsp_emailhandler.cfm%3Feid%3D100507%26uid%3D84463&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258360331&sdata=6gcxjhiJk8VQJsi%2FeRIr8NOxJ4JyftPG05g%2Fr1Puxyw%3D&reserved=0) Sun., 07/01 8:40-9:55AM(EST)
-
-***
