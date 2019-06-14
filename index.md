@@ -8,6 +8,9 @@
 
 *06/14/2019*
 
+#### [AERA Call for Paper and Session Submissions](https://www.aera.net/Events-Meetings/Annual-Meeting/2020-Annual-Meeting-Call-for-Paper-and-Session-Submissions)
+The 2020 AERA Annual Meeting will be held Friday, April 17 – Tuesday, April 21 in San Francisco. The theme is “The Power and Possibilities for the Public Good When Researchers and Organizational Stakeholders Collaborate." The portal must be used for all paper or session submissions for consideration by a division, special interest group, or committee. Please review the [Call for Submissions](https://www.aera.net/Portals/38/2020%20AM%20Call%20for%20Submissions_1.pdf) as it contains important information about this year's Annual Meeting theme and submission requirements. Submission deadline is **July 10, 2019**
+
 #### Summer 2019 National Conferences in Education and Child Development
 
 |	Association	|	Start	|	End	|	Location	|	Page |
