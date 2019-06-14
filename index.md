@@ -8,6 +8,11 @@
 
 *06/14/2019*
 
+#### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
+The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **September 6, 2019, at 3:00 PM EST.**
+
+***
+
 #### [AERA Call for Paper and Session Submissions](https://www.aera.net/Events-Meetings/Annual-Meeting/2020-Annual-Meeting-Call-for-Paper-and-Session-Submissions)
 The 2020 AERA Annual Meeting will be held Friday, April 17 – Tuesday, April 21 in San Francisco. The theme is “The Power and Possibilities for the Public Good When Researchers and Organizational Stakeholders Collaborate." The portal must be used for all paper or session submissions for consideration by a division, special interest group, or committee. Please review the [Call for Submissions](https://www.aera.net/Portals/38/2020%20AM%20Call%20for%20Submissions_1.pdf) as it contains important information about this year's Annual Meeting theme and submission requirements. Submission deadline is **July 10, 2019**
 
@@ -24,11 +29,6 @@ The 2020 AERA Annual Meeting will be held Friday, April 17 – Tuesday, April 21
 
 #### [Lyle Spencer Research Awards: Advancing Understanding of Education Practice and Its Improvement](https://www.spencer.org/lyle-spencer-research-awards)
 The Lyle Spencer Research Awards program supports intellectually ambitious research oriented to improving the practice of education, independent of any particular reform agendas or methodological strictures.  This program encourages proposals initiated by scholars across a variety of disciplines and fields in an effort to create much-needed space for creative and ambitious research projects that promise to advance our understanding of educational practice and its improvement. Deadline is **Late-May, 2019**
-
-***
-
-#### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
-The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **Deadline Will Be Posted Spring 2019**.
 
 ***
 
