@@ -65,7 +65,7 @@ line. Questions about the special issue can be addressed to Liz Stuart (estuart@
 ***
 
 #### [50% off SPSP Early Career Membership](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fmy.spsp.org%2F&data=02%7C01%7Ckristin.moore%40kingcounty.gov%7C6bfb9131549b4775170108d5d6d12c9c%7Cbae5059a76f049d7999672dfe95d69c7%7C0%7C0%7C636651116258340317&sdata=k2rh6EtoAPgQyfrcRhRUgGf1RVng7diGINpmgHKMHuc%3D&reserved=0)
-To take advantage of this offer, from the Society for Personality and Social Psychology (SPSP) renew at https://my.spsp.org/ **before July 27, 2019**. Use promo code 18SummerE at checkout to save 50% on your 1-year Early Career membership.
+To take advantage of this offer, from the Society for Personality and Social Psychology (SPSP) renew at https://my.spsp.org/ **before July 27, 2018**. Use promo code 18SummerE at checkout to save 50% on your 1-year Early Career membership.
 
 ***
 
