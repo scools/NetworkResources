@@ -16,6 +16,7 @@ COSEBOC's featured presenter is the dynamic Dr. Bettina Love, author of the grou
 #### [Know Your Rights | South King County Discipline Coalition](https://www.skcdisciplinecoalition.com/upcoming-events)
 Dakoda Foxx a parent and family advovate at Stand for Children shares insights on how to manage police interactions.**April 23, 2020, from 6:00 - 7:30 am PST via Zoom.**
 
+***
 
 #### [Remaking Schools in the Time of Coronavirus](https://www.eventbrite.com/e/remaking-schools-in-the-time-of-coronavirus-tickets-102588025546)
 The Covid-19 crisis has upended public education around the country. Join three radical education activists in conversation about what this crisis means for public education now and how moving forward we can continue to fight for the schools our students deserve. **April 22, 2020, 2:00 PM – 3:30 PM PST**
