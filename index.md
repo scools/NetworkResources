@@ -6,7 +6,21 @@
 <br><br>
 </p>
 
-*06/14/2019*
+*04/14/2020*
+
+#### [Virtual Gathering of the Coalition of Schools Educating Boys of Color (COSEBOC)](https://coseboc.org/event/virtual-gathering-leaders) 
+COSEBOC's featured presenter is the dynamic Dr. Bettina Love, author of the groundbreaking book, We Want to Do More Than Survive: Abolitionist Teaching and the Pursuit of Educational Freedom, followed by an interactive reflection and Q&A session and select panel talks. This important professional development session is being offered free. **April 28, 2020, from 9:00 - 11:00 am PST via Zoom.**
+
+***
+
+#### [Know Your Rights | South King County Discipline Coalition](https://www.skcdisciplinecoalition.com/upcoming-events)
+Dakoda Foxx a parent and family advovate at Stand for Children shares insights on how to manage police interactions.**April 23, 2020, from 6:00 - 7:30 am PST via Zoom.**
+
+
+#### [Remaking Schools in the Time of Coronavirus](https://www.eventbrite.com/e/remaking-schools-in-the-time-of-coronavirus-tickets-102588025546)
+The Covid-19 crisis has upended public education around the country. Join three radical education activists in conversation about what this crisis means for public education now and how moving forward we can continue to fight for the schools our students deserve. **April 22, 2020, 2:00 PM – 3:30 PM PST**
+
+***
 
 #### [Institutional Challenge Grant: W.T. Grant Foundation](http://wtgrantfoundation.org/grants/institutional-challenge-grant?utm_source=WilliamTGrant+Website+Signup&utm_campaign=889a2128a2-ICG+webinar+and+measures&utm_medium=email&utm_term=0_a590baf297-889a2128a2-340576261)
 The Institutional Challenge Grant encourages university-based research institutes, schools, and centers to build sustained research-practice partnerships with public agencies or nonprofit organizations in order to reduce inequality in youth outcomes. The online application is now open. All applications must be received by **September 6, 2019, at 3:00 PM EST.**
@@ -15,15 +29,6 @@ The Institutional Challenge Grant encourages university-based research institute
 
 #### [AERA Call for Paper and Session Submissions](https://www.aera.net/Events-Meetings/Annual-Meeting/2020-Annual-Meeting-Call-for-Paper-and-Session-Submissions)
 The 2020 AERA Annual Meeting will be held Friday, April 17 – Tuesday, April 21 in San Francisco. The theme is “The Power and Possibilities for the Public Good When Researchers and Organizational Stakeholders Collaborate." The portal must be used for all paper or session submissions for consideration by a division, special interest group, or committee. Please review the [Call for Submissions](https://www.aera.net/Portals/38/2020%20AM%20Call%20for%20Submissions_1.pdf) as it contains important information about this year's Annual Meeting theme and submission requirements. Submission deadline is **July 10, 2019**
-
-***
-
-#### Summer 2019 National Conferences in Education and Child Development
-
-|	Association	|	Start	|	End	|	Location	|	Page |
-|	:---: 	|	:---: 	|	:---: 	|	:---: 	|				:---: 		|
-|	SPSSI's 2019 Summer Conference |	June 21, 2019 |	June 23, 2019 |	San Diego, CA|	[LINK](https://www.spssi.org/index.cfm?fuseaction=Page.ViewPage&pageId=480)
-|	Association for Research in Personality	|	June 27, 2019	|	June 29, 2019	|	Grand Rapids, MI	|	[LINK](	http://www.personality-arp.org/conference/	)	|
 
 ***
 
