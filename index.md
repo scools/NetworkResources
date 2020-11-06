@@ -7,7 +7,7 @@
 </p>
 
 
-*Visit the Network Slack channel for current resources and conversations*
+##### *Visit the Network Slack channel for current resources and conversations*
 
 ***
 
