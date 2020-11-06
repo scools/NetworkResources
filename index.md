@@ -6,7 +6,10 @@
 <br><br>
 </p>
 
-*04/14/2020*
+
+*Visit Network Slack Channel for Current Resources and Conversations*
+
+***
 
 #### [Virtual Gathering of the Coalition of Schools Educating Boys of Color (COSEBOC)](https://coseboc.org/event/virtual-gathering-leaders) 
 COSEBOC's featured presenter is the dynamic Dr. Bettina Love, author of the groundbreaking book, We Want to Do More Than Survive: Abolitionist Teaching and the Pursuit of Educational Freedom, followed by an interactive reflection and Q&A session and select panel talks. This important professional development session is being offered free. **April 28, 2020, from 9:00 - 11:00 am PST via Zoom.**
